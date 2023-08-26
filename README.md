@@ -1,1 +1,1 @@
-# Societe-Generale-Hackathon---Hiring-Management
+# Societe-Generale-Hackathon-Hiring-Management
